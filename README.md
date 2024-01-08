@@ -1,3 +1,1 @@
-# Lethal-Company-Halo-Mods
-grug?
-# grug
+# Lethal Company Halo Mods
